@@ -1,6 +1,7 @@
-![1704594462584](https://github.com/RonRobertson49/RonRobertson49/assets/155919745/c7f9177a-4bee-43c6-b982-8dd2e4ab6bbd)
+![1704594420494](https://github.com/RonRobertson49/RonRobertson/assets/155919745/95db7229-bb5d-4723-a5ad-fa666f5e1d96)
 
-- 👋 Hi, I’m @RonRobertson49
+
+- 👋 Hi, I’m @RonRobertson
 - 👀 I’m interested in ... Living 
 - 🌱 I’m currently learning ...Life
 - 💞️ I’m looking to collaborate on ... Something (don't know yet!)
