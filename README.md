@@ -1,4 +1,3 @@
-![1704594420494](https://github.com/RonRobertson49/RonRobertson/assets/155919745/95db7229-bb5d-4723-a5ad-fa666f5e1d96)
 
 
 - 👋 Hi, I’m @RonRobertson
